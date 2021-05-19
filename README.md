@@ -1,1 +1,1 @@
-# webb_m_typography1-
+This is me learning Typography! Whew! Brand new so please go easy. 
